@@ -1,2 +1,2 @@
 # Wenny
-Tech &amp; Finance Haven for Christian Youth around the Globe.
+Tech &amp; Finance Haven for Youth around the Globe.
